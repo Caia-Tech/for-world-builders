@@ -1,3 +1,5 @@
+UPDATE- Jul 2 2025 - Looking for acquisition. Send offers to owner@caiatech.com
+
 # For World Builders
 
 A privacy-first, offline-capable worldbuilding application designed for writers, game masters, and creative storytellers who need to organize complex fictional universes.
